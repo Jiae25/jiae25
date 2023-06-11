@@ -1,7 +1,7 @@
 ## Jiae Ahn 😄
 
 ### Samsung SW Academy For Youth - 6th
-##### 2021.07.07 ~
+##### 2021.07.07 ~ 2022.06.30
 ___
 ## Skills
 
